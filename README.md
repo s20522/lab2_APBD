@@ -1,1 +1,1 @@
-# lab2_APBD
+# Miłego dnia <3
